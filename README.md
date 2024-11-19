@@ -1,0 +1,1 @@
+# shinigamidkaizo.github.io
